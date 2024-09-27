@@ -12,7 +12,7 @@ So, I needed the tools to make quite complex and intricate little cardboard cons
 
 
 ## Case
-A plastic business-card case. Maybe from eBay ? 
+A plastic business-card case. Maybe from eBay? 
 
 ## Contents
 - Washi tape - thin, strong, flexible, restickable paper tape
